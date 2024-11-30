@@ -1,3 +1,3 @@
 # pcd7
 
-https://github.com/muhamadaliflivswiper/pcd-sesi-7.git
+file:///C:/Users/USE/AppData/Local/Microsoft/Windows/INetCache/IE/HEM61DJL/pcdsesi5[1].html
